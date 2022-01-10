@@ -1,6 +1,6 @@
 # ABOUT DARKFIRE
 ## [Watch it on youtube](https://youtu.be/8xNi__icuOg)
-### Responsive Landing Page Headphones 🎧
+### GO AND SUBSCRIBE ME
 
 - .
 - Dark interface.
